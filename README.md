@@ -640,16 +640,25 @@ GAMES LIST
 ​
 
 INFORMACION 
-Algunos juegos de nuestro catálogo no fueron incluidos en la lista si desea alguno en especifico q no vea en la lista nos puede contactar a nuestro número y preguntarnos y lo tenemos y recibirá una respuesta siéntase libre de preguntar
+1-Algunos juegos de nuestro catálogo no fueron incluidos en la lista si desea alguno en especifico q no vea en la lista nos puede contactar a nuestro número y preguntarnos y si lo tenemos y recibirá una respuesta siéntase libre de preguntar
+
+2-el símbolo /// q tiene al final cada juego significa q fue probado y funciona
 
 
 Precios-
+
 Juegos del 2012 para abajo 100pesos 
+
 Del 2013-2016 150pesos
+
 Del 2017-2022 250pesos
+
 Del 2023-2024 350pesos
+
 Del 2025 400pesos
+
 Del 2026 500pesos
+
 
 
 Ofertas-
