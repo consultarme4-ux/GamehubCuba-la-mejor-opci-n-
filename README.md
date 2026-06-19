@@ -640,6 +640,8 @@ GAMES LIST
 ​
 
 INFORMACION 
+
+
 1-Algunos juegos de nuestro catálogo no fueron incluidos en la lista si desea alguno en especifico q no vea en la lista nos puede contactar a nuestro número y preguntarnos y si lo tenemos y recibirá una respuesta siéntase libre de preguntar
 
 2-el símbolo /// q tiene al final cada juego significa q fue probado y funciona
