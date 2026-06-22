@@ -1,650 +1,913 @@
 Catálogo PC
 
+7 Days to die
 
-GAMES LIST
 
+Alien Isolation
 
-​7 Days to die///
 
+Aliens - Colonial Marines
 
-​Alien Isolation///
 
+Aliens vs Predator
 
-​Aliens - Colonial Marines///
 
+Among.Us.v2026.3.312.0
 
-​Aliens vs Predator///
 
+Angry Birds
 
-​Assassin's Creed Origins - Gold Edition///
 
+Army Men RTS
 
-​Assassins Creed Mirage///
 
+Assassin's Creed III Complete Edition
 
-​Assassins Creed Valhalla Complete Edition///
 
+Assassin's Creed IV Black Flag + DLCs
 
-​Asterigos Curse of the Stars///
 
+Assassin's Creed Brotherhood
 
-​Batman Arkham Asylum///
 
+Assassin's Creed Origins - Gold Edition
 
-​Batman Arkham City///
 
+Assassin's Creed Rogue
 
-​Batman Arkham Knight///
 
+Assassin's Creed Syndicate
 
-​Batman Arkham Origins///
 
+Assassins Creed Mirage
 
-​Battlefield 6///
 
+Assassins Creed Valhalla Complete Edition
 
-​Battlefield V///
 
+Asterigos Curse of the Stars
 
-​Biomutant///
 
+Bad Piggies
 
-​Bioshock-COLECCION///
 
+Batman Arkham Asylum
 
-​Black Mesa///
 
+Batman Arkham Asylum GOTY
 
-​Bleak Faith Forsaken///
 
+Batman Arkham City
 
-​Borderlands 1///
 
+Batman Arkham Knight
 
-​Borderlands 2///
 
+Batman Arkham Origins
 
-​Borderlands 3///
 
+Battlefield 6
 
-​Borderlands The Pre-Sequel///
 
+Battlefield V
 
-​Castlevania Lords of Shadow - Ultimate Edition///
 
+Biomutant
 
-​Castlevania Lords of Shadow 2///
 
+Bioshock-COLECCION
 
-​Columna 2///
 
+Black Mesa
 
-​Control Ultimate Edition///
 
+Bleak Faith Forsaken
 
-​Cronos The New Dawn///
 
+Borderlands 1
 
-​Cyberpunk 2077///
 
+Borderlands 2
 
-​Dark Souls I///
 
+Borderlands 3
 
-​Dark Souls II///
 
+Borderlands The Pre-Sequel
 
-​Dark Souls III///
 
+Bully-SteamRIP.com
 
-​Darksiders 2 (2012)///
 
+Call OF Duty 2 Modern Warfare Opti
 
-​Darksiders III///
 
+Call of Duty 4 - Modern Warfare 1
 
-​Darksiders Warmastered///
 
+Call of Duty Black Ops 2
 
-​Days Gone///
 
+Call Of Duty Modern Warfare 3
 
-​Dead Island///
 
+Call of Duty World At War - By LugGame
 
-​Dead Island 2///
 
+Castlevania Lords of Shadow - Ultimate Edition
 
-​Dead Island Riptide///
 
+Castlevania Lords of Shadow 2
 
-​Dead Rising///
 
+Columna 2
 
-​Dead Rising 2///
 
+Control Ultimate Edition
 
-​Dead Rising 3///
 
+Counter Strike Source (LAN)
 
-​Dead Rising 4///
 
+Cronos The New Dawn
 
-​Dead Space 1///
 
+Cuphead (NOT DLC)
 
-​Dead Space 2///
 
+Cyberpunk 2077
 
-​Dead Space 3///
 
+DARK-SOULS-Prepare-To-Die-E-SteamRIP.com
 
-​Dead Space 2023 Remake///
 
+Dark Souls I
 
-​Death Stranding 2///
 
+Dark Souls II
 
-​Detroit - Become Human///
 
+Dark Souls III
 
-​Deus Ex Human Revolution Director's Cut///
 
+Darksiders 2 (2012)
 
-​Deus Ex Mankind Divided///
 
+Darksiders III
 
-​Dishonored 2///
 
+Darksiders Warmastered
 
-​Dishonored Death of the Outsider///
 
+Days Gone
 
-​Doom [2016]///
 
+DayZ+OfflineFix
 
-​Dragon Age Inquisition///
 
+Dead Island
 
-​Dragon Dogma Dark Arisen///
 
+Dead Island 2
 
-​Dragons Dogma 2///
 
+Dead Island Riptide
 
-​Driver San Francisco///
 
+Dead Rising
 
-​Dying Light 1///
 
+Dead Rising 2
 
-​Dying Light 2 Stay Human///
 
+Dead Rising 3
 
-​Dying Light The Beast///
 
+Dead Rising 4
 
-​Dynasty Warriors 7 Xtreme leyends definitive edition///
 
+Dead Space
 
-​Elden Ring///
 
+Dead Space 1
 
-​Evolve Monster Race Edition///
 
+Dead Space 2
 
-​Fallout 4///
 
+Dead Space 3
 
-​Far Cry 2 Fortune's Edition///
 
+Dead Space 2023 Remake
 
-​Far Cry 3///
 
+DeadIsland1 Game of Year Edition
 
-​Far Cry 4///
 
+Death Stranding 2
 
-​Far Cry 5///
 
+Detroit - Become Human
 
-​Far Cry 6///
 
+Deus Ex Human Revolution Director's Cut
 
-​Far Cry Cry 1///
 
+Deus Ex Mankind Divided
 
-​Far Cry New Dawn///
 
+Dishonored 2
 
-​Far Cry Primal///
 
+Dishonored Death of the Outsider
 
-​FINAL FANTASY VII CRISIS CORE///
 
+Doom 3
 
-​Football PES [2021]///
 
+Doom [2016]
 
-​Forza Horizon 6///
 
+Dragon Age Inquisition
 
-​Gears of War Reloaded 2025///
 
+Dragon Dogma Dark Arisen
 
-​Ghost of Tsushima///
 
+Dragons Dogma 2
 
-​Ghost Recon Future Soldier///
 
+Drive Ahead 1.71 PC Port OptiJuegos
 
-​God Of War (2018)///
 
+Driver San Francisco
 
-​God of War Ragnarok///
 
+Dying Light 1
 
-​Gotham Knigth///
 
+Dying Light 2 Stay Human
 
-​Grand Theft Auto V///
 
+Dying Light The Beast
 
-​Hell is Us///
 
+Dying Ligh-The Following Enhanced
 
-​Hitman 2///
 
+Dynasty Warriors 7 Xtreme leyends definitive edition
 
-​Hitman 3///
 
+Elden Ring
 
-​Hitman 2016///
 
+Escape from Duckov
 
-​Hitman Absolution///
 
+Evolve Monster Race Edition
 
-​Horizon Forbidden West Complete Edition///
 
+Fallout 3 GOTY Repack en español
 
-​Horizon Zero Dawn///
 
+Fallout 4
 
-​Immortal Unchained///
 
+Far Cry 1 Repack
 
-​Jump Force Ultimate Edition///
 
+Far Cry 2 Fortune's Edition
 
-​Just Cause 2///
 
+Far Cry 3
 
-​Just Cause 3 XL Edition (2015)///
 
+Far Cry 3 Complete Collection
 
-​Just Cause 4///
 
+Far Cry 4
 
-​Kena Bridge of Spirits Deluxe Edition///
 
+Far Cry 5
 
-​Kingdoms of Amalur Reckoning Remaster///
 
+Far Cry 6
 
-​Lies of P///
 
+Far Cry Cry 1
 
-​Lords of the Fallen [2023]///
 
+Far Cry New Dawn
 
-​Mad Max///
 
+Far Cry Primal
 
-​Mafia///
 
+FINAL FANTASY VII CRISIS CORE
 
-​Mafia 2///
 
+Football PES [2021]
 
-​Marvel's Spider-Man 2 Deluxe Edition///
 
+Forza Horizon 6
 
-​Marvels Avengers///
 
+Gears of War Reloaded 2025
 
-​Marvels Guardians of the Galaxy///
 
+Geometry.Dash.v2.207
 
-​Marvels Spider Man Miles Morales///
 
+Ghost of Tsushima
 
-​Marvels Spider Man Remastered///
 
+Ghost Recon Future Soldier
 
-​Mass Effect 2 Ultimate Edition///
 
+God Of War (2018)
 
-​Mass Effect 3 Complete Edition///
 
+God of War Ragnarok
 
-​Mass Effect Andromeda Deluxe Edition [2017]///
 
+Gotham Knigth
 
-​Mass Effect Ultimate Edition///
 
+Grand Theft Auto - San Andreas
 
-​ME Legendary Edition///
 
+Grand Theft Auto III
 
-​Metal Gear Rising Revengeance///
 
+Grand Theft Auto Vice City
 
-​Metal Gear Solid Snake Eater 2025///
 
+Grand Theft Auto V
 
-​Metal Gear Solid V - The Phantom Pain///
 
+GtaIV + fusion fix
 
-​Middle Earth - Shadow of Mordor - Game of the Year Edition///
 
+Hell is Us
 
-​Middle-earth - Shadow of War///
 
+Henry Stickmin Flash Collection
 
-​Monster.Hunter.Rise.Sunbreak///
 
+Hitman 2
 
-​Murdered Soul Suspect///
 
+Hitman 3
 
-​MX vs ATV Legends-Motocroz///
 
+Hitman 2016
 
-​NARUTO SHIPPUDEN - Ultimate Ninja STORM 1///
 
+Hitman Absolution
 
-​NARUTO SHIPPUDEN - Ultimate Ninja STORM 2///
 
+Hollow Knight
 
-​NARUTO SHIPPUDEN - Ultimate Ninja STORM 3///
 
+Hollow Knight Silksong
 
-​NARUTO SHIPPUDEN - Ultimate Ninja STORM 4///
 
+Horizon Forbidden West Complete Edition
 
-​NARUTO SHIPPUDEN Ultimate Ninja STORM REVOLUTION///
 
+Horizon Zero Dawn
 
-​Naruto x Boruto Ultimate Ninja Storm Connections///
 
+Hytale_Opti V3
 
-​Need For Speed - Payback///
 
+Immortal Unchained
 
-​Need for Speed Heat///
 
+Jump Force Ultimate Edition
 
-​NieR Automata GOTY///
 
+Just Cause 2
 
-​NieR Replicant///
 
+Just Cause 2 Complete
 
-​Ninja Gaiden 2 Black///
 
+Just Cause 3 XL Edition (2015)
 
-​Ninja Gaiden 4///
 
+Just Cause 4
 
-​No Man's Sky///
 
+Kena Bridge of Spirits Deluxe Edition
 
-​PC Building Simulator 2///
 
+Kingdoms of Amalur Reckoning Remaster
 
-​Quantum Break Steam Edition///
 
+LandOfTheDead
 
-​Ratchet and Clank Rift Apart///
 
+Left 4 Dead 2 Lan
 
-​Recore definitive edition///
 
+LEGO-Marvel-Super-Heroes-AnkerGames
 
-​Red Dead Redemption 2///
 
+Lies of P
 
-​Red Faction Guerrilla Remastered///
 
+Limbo-Setup
 
-​Remnant 1///
 
+Lords of the Fallen [2023]
 
-​Remnant 2///
 
+Mad Max
 
-​Resident Evil 2 2019///
 
+Mafia
 
-​Resident Evil 3 Remake 2020///
 
+Mafia 2
 
-​Resident Evil 6///
 
+Mario Kart 8
 
-​Resident Evil 8 Village///
 
+Marvel's Spider-Man 2 Deluxe Edition
 
-​Resident Evil Requiem///
 
+Marvels Avengers
 
-​Resident Evil Revelations 2///
 
+Marvels Guardians of the Galaxy
 
-​Resident Evil.7.Biohazard.Gold.Edition///
 
+Marvels Spider Man Miles Morales
 
-​Resident.Evil.Revelations///
 
+Marvels Spider Man Remastered
 
-​Rise of the Tomb Raider///
 
+Mass Effect 2 Ultimate Edition
 
-​RoboCop Rogue City Unfinished Business///
 
+Mass Effect 3 Complete Edition
 
-​Ryse - son of Rome///
 
+Mass Effect Andromeda Deluxe Edition [2017]
 
-​Saints Row 2///
 
+Mass Effect Ultimate Edition
 
-​Saints Row 3 Remastered///
 
+ME Legendary Edition
 
-​Saints Row 4///
 
+Medal-Of-Honor-Warfighter
 
-​Saints Row 2022///
 
+Metal Gear Rising Revengeance
 
-​Saints Row Gat out of Hell///
 
+Metal Gear Solid Snake Eater 2025
 
-​Sekiro Shadows Die Twice///
 
+Metal Gear Solid V - The Phantom Pain
 
-​Serious Sam 4///
 
+Metro-2033-Redux
 
-​Serious Sam Siberian Mayhem///
 
+Middle Earth - Shadow of Mordor - Game of the Year Edition
 
-​Shadow of the Tomb Raider///
 
+Middle-earth - Shadow of War
 
-​Sifu Deluxe Edition (2022)///
 
+Monopoly Plus
 
-​SINGULARITY///
 
+Monster.Hunter.Rise.Sunbreak
 
-​Sleeping Dogs///
 
+Mortal Kombat Komplete Edition
 
-​Sons of the Forest///
 
+Murdered Soul Suspect
 
-​Splinter Cell Blacklist Complete///
 
+MX vs ATV Legends-Motocroz
 
-​Splinter Cell Conviction Complete///
 
+NARUTO SHIPPUDEN - Ultimate Ninja STORM 1
 
-​Splinter Cell Double Agent///
 
+NARUTO SHIPPUDEN - Ultimate Ninja STORM 2
 
-​STAR WARS Battlefront 2015///
 
+NARUTO SHIPPUDEN - Ultimate Ninja STORM 3
 
-​STAR WARS Battlefront II 2017///
 
+NARUTO SHIPPUDEN - Ultimate Ninja STORM 4
 
-​STAR WARS Jedi Survivor-RUNE///
 
+NARUTO SHIPPUDEN Ultimate Ninja STORM REVOLUTION
 
-​Star Wars The Force Unleashed 1y2///
 
+Naruto x Boruto Ultimate Ninja Storm Connections
 
-​Stalker 2 heart of chernobyl///
 
+Need For Speed - Payback
 
-​State of Decay 2///
 
+Need for Speed Heat
 
-​State of Decay year one///
 
+Need for Speed Hot Pursuit 2010
 
-​SWIFO///
 
+Need for Speed Most Wanted 2012
 
-​Sword Art Online Fatal Bullet Dissonance of the Nexus///
 
+Need for Speed Rivals
 
-​Tales of Arise 2022///
 
+Need for Speed The Run
 
-​TEKKEN 7///
 
+NieR Automata GOTY
 
-​TEKKEN 8///
 
+NieR Replicant
 
-​Terminator Resistance///
 
+Ninja Gaiden 2 Black
 
-​Terminator Salvation///
 
+Ninja Gaiden 4
 
-​The Amazing Spider Man///
 
+No Man's Sky
 
-​The Amazing Spider Man 2///
 
+onlinefix mw3 waw bo2
 
-​The Crew 2///
 
+Outlast Complete Edition
 
-​The Forest///
 
+Payday The Heist
 
-​The Last of Us Part 1///
 
+PC Building Simulator
 
-​The Last of Us Part 2///
 
+PC Building Simulator 2
 
-​The Technomancer///
 
+Plague Inc
 
-​The Walking Dead Survival Instinct///
 
+Plants vs Zombies 2 Gardnless
 
-​The Witcher 3///
 
+Plants vs Zombies Garden Warfare
 
-​The.Outer.Worlds.Murder.on.Eridanos///
 
+Plants vs. Zombies GOTY
 
-​TheElderScrolls 4 Oblivion Remasterizado///
 
+Plants vs. zombies grafico reasterizados
 
-​Thief Complete Edition (2014)///
 
+PlantsvsZombiesGardenWarfare_Fix_Repack
 
-​Tiny Tinas Wonderlands///
 
+ProjectZomboid (v0.32 Old)
 
-​Titanfall 2///
 
+Project-Zomboid+OnlineFix
 
-​Tom Clancy's Ghost Recon Wildlands///
 
+pvz fusions
 
-​Tom Clancy's Rainbow Six Vegas Collection///
 
+Quantum Break Steam Edition
 
-​Tomb Raider GOTY///
 
+Ratchet and Clank Rift Apart
 
-​Uncharted 4 Legacy of Thieves///
 
+Recore definitive edition
 
-​Watch Dogs Complete Edition///
 
+Red Dead Redemption 1 Steam
 
-​Watch Dogs 2///
 
+Red Dead Redemption 2
 
-​Watch Dogs Legion///
 
+Red Faction Guerrilla Remastered
 
-​Warcraft III Reforged///
 
+Remnant 1
 
-​Werewolf The Apocalypse Earthblood///
 
+Remnant 2
 
-​Wo Long Fallen Dynasty Deluxe Edition///
 
+Resident Evil 2 2019
 
-​Wolfenstein///
 
+Resident Evil 3 Remake 2020
 
-​Wolfenstein II The New Colossus///
 
+Resident Evil 5 Gold Edition
 
-​Wolfenstein The New Order///
 
+Resident Evil 6
 
-​Wolfenstein Youngblood///
 
+Resident Evil 8 Village
 
-​World War Z///
 
+Resident Evil Requiem
 
-​X-Men Origins - Wolverine///
 
+Resident Evil Revelations 2
 
-​
+
+Resident Evil.7.Biohazard.Gold.Edition
+
+
+Resident.Evil.Revelations
+
+
+Rise of the Tomb Raider
+
+
+RoboCop Rogue City Unfinished Business
+
+
+Rocket League 2015 Offline Optijuegos
+
+
+Ryse - son of Rome
+
+
+Saints Row 2
+
+
+Saints Row 3 Remastered
+
+
+Saints Row 4
+
+
+Saints Row 2022
+
+
+Saints Row Gat out of Hell
+
+
+Sekiro Shadows Die Twice
+
+
+Serious Sam 4
+
+
+Serious Sam Siberian Mayhem
+
+
+Shadow of the Tomb Raider
+
+
+Sifu Deluxe Edition (2022)
+
+
+SINGULARITY
+
+
+Sleeping Dogs
+
+
+Sniper Elite III
+
+
+Sniper Elite Nazi Zombie Army 2
+
+
+Sniper Elite V2 GOTY
+
+
+Sons of the Forest
+
+
+Soul Knight PC
+
+
+Spec Ops The Line
+
+
+Splinter Cell Blacklist Complete
+
+
+Splinter Cell Conviction Complete
+
+
+Splinter Cell Double Agent
+
+
+STAR WARS Battlefront 2015
+
+
+STAR WARS Battlefront II 2017
+
+
+STAR WARS Jedi Survivor-RUNE
+
+
+Star Wars The Force Unleashed 1y2
+
+
+Stardew Valley
+
+
+Stalker 2 heart of chernobyl
+
+
+State of Decay 2
+
+
+State of Decay year one
+
+
+Stumble Guys Practice Mode
+
+
+Subnautica
+
+
+SUPER MARIO 64
+
+
+Super Mario Bros Collection
+
+
+Super mario wonder FGx64
+
+
+SWIFO
+
+
+Sword Art Online Fatal Bullet Dissonance of the Nexus
+
+
+Tales of Arise 2022
+
+
+TEKKEN 7
+
+
+TEKKEN 8
+
+
+tenoke-chicken.fries
+
+
+Terminator Resistance
+
+
+Terminator Salvation
+
+
+Terraria v1.4.5.0
+
+
+Tetris_GameBoy
+
+
+The Amazing Spider Man
+
+
+The Amazing Spider Man 2
+
+
+The Crew 2
+
+
+The Forest
+
+
+The Last of Us Part 1
+
+
+The Last of Us Part 2
+
+
+The Technomancer
+
+
+The Ultimate Windows Game Pack
+
+
+The Walking Dead Survival Instinct
+
+
+The Witcher 3
+
+
+The.Outer.Worlds.Murder.on.Eridanos
+
+
+TheElderScrolls 4 Oblivion Remasterizado
+
+
+Thief Complete Edition (2014)
+
+
+This War of Mine
+
+
+Tiny Tinas Wonderlands
+
+
+Titanfall 2
+
+
+Tom Clancy's Ghost Recon Wildlands
+
+
+Tom Clancy's Rainbow Six Vegas Collection
+
+
+Tomb Raider GOTY
+
+
+TombRider 2013 Installed 10.6gb
+
+
+Uncharted 4 Legacy of Thieves
+
+
+Undertale Spanish
+
+
+Watch Dogs Complete Edition
+
+
+Watch Dogs 2
+
+
+Watch Dogs Legion
+
+
+Watch-Dogs-SteamRIP.com
+
+
+Warcraft III Reforged
+
+
+Werewolf The Apocalypse Earthblood
+
+
+WHGOriginal
+
+
+Wo Long Fallen Dynasty Deluxe Edition
+
+
+Wolfenstein
+
+
+Wolfenstein II The New Colossus
+
+
+Wolfenstein The New Order
+
+
+Wolfenstein Youngblood
+
+
+World War Z
+
+
+WorldBox 2025 God.Simulator v0.50.5
+
+
+X-Men Origins - Wolverine
+
+
+
 
 INFORMACION 
 
 
 1-Algunos juegos de nuestro catálogo no fueron incluidos en la lista si desea alguno en especifico q no vea en la lista nos puede contactar a nuestro número y preguntarnos y si lo tenemos y recibirá una respuesta siéntase libre de preguntar
 
-2-el símbolo /// q tiene al final cada juego significa q fue probado y funciona
+2-todos los juegos funcionan al 100%
 
 
 Precios-
@@ -670,5 +933,3 @@ si compras 3 juegos obtienes uno gratis del 2020 para abajo
 
 Del 17 de junio al 1 de julio
 hollow knigth + Hollow knigth silksong tienen un valor de 100 pesos
-
-
