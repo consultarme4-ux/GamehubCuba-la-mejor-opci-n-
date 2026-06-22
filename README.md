@@ -909,6 +909,7 @@ INFORMACION
 
 2-todos los juegos funcionan al 100%
 
+3-tambien contamos con un catálogo de juegos de emuladores si ud desea algún juego puede preguntarnos si contamos con el y recibirá respuesta
 
 Precios-
 
